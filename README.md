@@ -1,4 +1,4 @@
-![Yay](https://komarev.com/ghpvc/?username=your-github-Aresness)
+![](https://komarev.com/ghpvc/?username=your-github-Aresness&color=000435&label=Yippe)
 
    "Living itself is the source of sin." *-Osamu Dazai*
 	       
