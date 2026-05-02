@@ -3,7 +3,42 @@
    "Living itself is the source of sin." *-Osamu Dazai*
 	       
 ⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅
-									 
+<details>
+<summary>About me!</summary> 
+	&nbsp;
+	
+Hi! Im Ares. I`m 17 years old, my birthday is at 4th of March.  
+
+Nicknames: Only RS lol.  
+
+My MBTI is INFJ.  
+
+I love anime especially, Bungou Stray Dogs. I draw. A LOT. I study in art school. I love TV Girl, Mitski. I love FNaF, Forsaken, etc. 
+ 
+</details>  
+	&nbsp;
+<details>
+<summary>Do Not Interact</summary>  
+	&nbsp;
+	
+Homophobic, Racist, Pedophiles, Zoophiles.  
+
+Plays the victim.  
+
+Liars.  
+
+Expects me to text you first often and make me do "all the work".  
+
+Under 12 years old.  
+
+Close minded.  
+
+Sexualizes any character.  
+
+Silence equals awkward.  
+
+
+</details> 								 
 <img width="640" height="360" alt="tumblr_3c699fee3faa479586e6df3363d5d908_b79afb8d_640" src="https://github.com/user-attachments/assets/c483416b-463c-4ddb-8d8c-0764130463d4"/>
 ⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅
 
