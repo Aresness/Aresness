@@ -13,6 +13,8 @@ Nicknames: Only RS lol.
 
 My MBTI is INFJ.  
 
+Transmasc with dreams.  
+
 I love anime especially, Bungou Stray Dogs. I draw. A LOT. I study in art school. I love TV Girl, Mitski. I love FNaF, Forsaken, etc. 
  
 </details>  
