@@ -40,7 +40,10 @@ Sexualizes any character.
 Silence equals awkward.  
 
 
-</details> 								 
+</details> 	
+
+https://www.google.com/imgres?h=305&w=720&tbnh=146&tbnw=345&osm=1&hcb=1&source=lens-native&usg=AI4_-kRScxOkoXN5RbusYBeJF2sjksWg4A&imgurl=https://i.pinimg.com/736x/d6/4e/f1/d64ef1de97b7ff10a668f679369b5f7e.jpg&imgrefurl=https://www.pinterest.com/pin/395613148509885381/&tbnid=SE1l7AyGmHS4UM&docid=bB6aeaty5Zm5jM
+							 
 <img width="640" height="360" alt="tumblr_3c699fee3faa479586e6df3363d5d908_b79afb8d_640" src="https://github.com/user-attachments/assets/c483416b-463c-4ddb-8d8c-0764130463d4"/>
 ⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅
 
