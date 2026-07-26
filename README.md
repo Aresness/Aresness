@@ -1,56 +1,64 @@
+
+
+
 ![](https://komarev.com/ghpvc/?username=your-github-Aresness&color=000435&label=Yippe)
+
+<img width="640" height="220" alt="image" src="https://github.com/user-attachments/assets/1c3b7749-595a-4065-b41f-a5c8b8c721cf" />
 
    "Living itself is the source of sin." *-Osamu Dazai*
 	       
 ⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅
 <details>
-<summary>About me!</summary> 
+<summary>Ａｂｏｕｔ Ｍｅ</summary> 
 	&nbsp;
 	
-Hi! Im Ares. I`m 17 years old, my birthday is at 4th of March.  
+ʜɪ! ɪ'ᴍ ᴀʀᴇꜱ. ɪ`ᴍ 17 ʏᴇᴀʀꜱ ᴏʟᴅ.
 
-Nicknames: Only RS lol.  
+ᴍʏ ʙɪʀᴛʜᴅᴀʏ ɪꜱ ᴀᴛ 4ᴛʜ ᴏꜰ ᴍᴀʀᴄʜ.
 
-My MBTI is INFJ.  
+ᴍʏ ᴏɴʟʏ ɴɪᴄᴋɴᴀᴍᴇ ɪꜱ ʀꜱ ʙᴜᴛ ɪ ᴡᴏᴜʟᴅ ᴀᴘᴘʀᴇᴄɪᴀᴛᴇ ᴀɴʏ ᴋɪɴᴅ ᴏꜰ ɴɪᴄᴋꜱ.
 
-Transmasc with dreams.  
+ᴍʏ ᴍʙᴛɪ ɪꜱ ɪɴꜰᴊ.
 
-I love anime especially, Bungou Stray Dogs. I draw. A LOT. I study in art school. I love TV Girl, Mitski. I love FNaF, Forsaken, etc. 
- 
+ᴛʀᴀɴꜱᴍᴀꜱᴄ ᴡɪᴛʜ ᴅʀᴇᴀᴍꜱ.
+
+ɪ ʟᴏᴠᴇ ᴀɴɪᴍᴇ ᴇꜱᴘᴇᴄɪᴀʟʟʏ, ʙᴜɴɢᴏᴜ ꜱᴛʀᴀʏ ᴅᴏɢꜱ. ɪ ᴅʀᴀᴡ. ᴀ ʟᴏᴛ. ɪ ꜱᴛᴜᴅʏ ɪɴ ᴀʀᴛ ꜱᴄʜᴏᴏʟ. ɪ ʟᴏᴠᴇ ᴛᴠ ɢɪʀʟ, ᴍɪᴛꜱᴋɪ. ɪ ʟᴏᴠᴇ ꜰɴᴀꜰ, ꜰᴏʀꜱᴀᴋᴇɴ, ʙᴀᴅ ᴛʜɪɴɢꜱ, ᴛꜱʜᴅ, ᴅᴀᴡᴛᴅᴇ/ꜱꜰᴀᴡᴛᴅᴇ, ʙʟᴀᴄᴋ ʙᴜᴛʟᴇʀ, ɢɪᴠᴇɴ, ʙᴀɴᴀɴᴀ ꜰɪꜱʜ, ᴡᴀᴛᴇʀꜱɪᴅᴇ ɴɪɢʜᴛ, ᴀʟɴꜱᴛ, ᴛᴏꜱ, ᴘᴊꜱᴋ, ɢᴇɴꜱʜɪɴ,ʏᴏᴜʀ ɴᴀᴍᴇ, ᴀ ꜱɪʟᴇɴᴛ ᴠᴏɪᴄᴇ ᴀɴᴅ ᴍᴏʀᴇ!
+
 </details>  
+<img width="1193" height="57" alt="image" src="https://github.com/user-attachments/assets/950be53d-3475-4888-856b-678e4366405b" />
 	&nbsp;
 <details>
-<summary>Do Not Interact</summary>  
+<summary>Ｄｏ Ｎｏｔ Ｉｎｔｅｒａｃｔ</summary>  
 	&nbsp;
 	
-Homophobic, Racist, Pedophiles, Zoophiles.  
+ʜᴏᴍᴏᴘʜᴏʙɪᴄ, ʀᴀᴄɪꜱᴛ, ᴘᴇᴅᴏᴘʜɪʟᴇꜱ, ᴢᴏᴏᴘʜɪʟᴇꜱ.
 
-Plays the victim.  
+ᴘʟᴀʏꜱ ᴛʜᴇ ᴠɪᴄᴛɪᴍ.
 
-Liars.  
+ʟɪᴀʀꜱ.
 
-Expects me to text you first often and make me do "all the work".  
+ᴇxᴘᴇᴄᴛꜱ ᴍᴇ ᴛᴏ ᴛᴇxᴛ ʏᴏᴜ ꜰɪʀꜱᴛ ᴏꜰᴛᴇɴ ᴀɴᴅ ᴍᴀᴋᴇ ᴍᴇ ᴅᴏ "ᴀʟʟ ᴛʜᴇ ᴡᴏʀᴋ".
 
-Under 12 years old.  
+ᴜɴᴅᴇʀ 12 ʏᴇᴀʀꜱ ᴏʟᴅ.
 
-Close minded.  
+ᴄʟᴏꜱᴇ ᴍɪɴᴅᴇᴅ.
 
-Sexualizes any character.  
+ꜱᴇxᴜᴀʟɪᴢᴇꜱ ᴀɴʏ ᴄʜᴀʀᴀᴄᴛᴇʀ.
 
-Silence equals awkward.  
+ꜱɪʟᴇɴᴄᴇ ᴇQᴜᴀʟꜱ ᴀᴡᴋᴡᴀʀᴅ.
 
+ᴘᴇᴏᴘʟᴇ ᴡʜᴏ ᴄʀɪᴛɪᴢᴇ ᴇᴠᴇʀʏᴛʜɪɴɢ.
+
+ᴘᴇᴏᴘʟᴇ ᴡɪᴛʜ ᴠᴇʀʏ ʜɪɢʜ ᴇɢᴏ.
 
 </details>
-							 
-<img width="640" height="360" alt="tumblr_3c699fee3faa479586e6df3363d5d908_b79afb8d_640" src="https://github.com/user-attachments/assets/c483416b-463c-4ddb-8d8c-0764130463d4"/>
+
+⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅
+						 
+<img width="733" height="418" alt="image" src="https://github.com/user-attachments/assets/dd04e6e9-b050-460a-ba2b-8287796bde2e" />
+
+
 ⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅
 
 <img width="1193" height="57" alt="image" src="https://github.com/user-attachments/assets/950be53d-3475-4888-856b-678e4366405b" />
-
-⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅
-
-<img width="4500" height="1597" alt="Kuroshitsuji full 427900" src="https://github.com/user-attachments/assets/ce61d230-1cc7-40fe-a64e-e8a4138da655" />
-
-⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅
-
 
