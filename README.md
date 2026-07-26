@@ -1,5 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=your-github-Aresness&color=000435&label=Yippe)
 
+⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅
+
 <img width="640" height="220" alt="image" src="https://github.com/user-attachments/assets/1c3b7749-595a-4065-b41f-a5c8b8c721cf" />
 
    "Living itself is the source of sin." *-Osamu Dazai*
