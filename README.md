@@ -51,6 +51,13 @@
 ᴘᴇᴏᴘʟᴇ ᴡɪᴛʜ ᴠᴇʀʏ ʜɪɢʜ ᴇɢᴏ.
 
 </details>
+<details>
+<summary> I m p o r t a n t </summary>  
+	&nbsp;
+
+PLEASE due to the language barrier,do avoid interacting about complicated topics with me. I often panic and get embarrassed/guilty about not being able to answer in right way. I am not good with recognizing references,nor remember every detail of a fandom due to some memory issues I'm having. I can take things like walking away or ignoring seriously. And if I get offended I often get silent and dry text. I often prefer silence. When someone is venting to me, I often pray a friend of us come and comfort them while I just listen to both of them cuz I'm very awkward in English and can't handle venting like I can in my own language. So please don't take it personal. I like being called pet names. I can easily get overwhelmed, which I often try to ignore for sake of my friends and try not to let my overwhelm kill the conversation. I don't like it when ppl force me into doing something. I also often hesitate saying that I'm uncomfortable. Even when they ask if I'm uncomfortable, I often say I'm not cuz I don't want to make others feel guilty/embarrassed, or i dont want em to restrict themselves/their acts just for thrme sake of me, so yeah. I just straight up struggle saying I'm uncomfortable. I don't know how to react to compliments. I prefer not to say No even if I want to. You are free to cud/int, but please iwc.
+
+</details>
 
 ⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅
 						 
@@ -58,5 +65,3 @@
 
 
 ⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅
-
-PLEASE due to the language barrier,do avoid interacting about complicated topics with me. I often panic and get embarrassed/guilty about not being able to answer in right way. I am not good with recognizing references,nor remember every detail of a fandom due to some memory issues I'm having. I can take things like walking away or ignoring seriously. And if I get offended I often get silent and dry text. I often prefer silence. When someone is venting to me, I often pray a friend of us come and comfort them while I just listen to both of them cuz I'm very awkward in English and can't handle venting like I can in my own language. So please don't take it personal. I like being called pet names. I can easily get overwhelmed, which I often try to ignore for sake of my friends and try not to let my overwhelm kill the conversation. I don't like it when ppl force me into doing something. I also often hesitate saying that I'm uncomfortable. Even when they ask if I'm uncomfortable, I often say I'm not cuz I don't want to make others feel guilty/embarrassed, or i dont want em to restrict themselves/their acts just for thrme sake of me, so yeah. I just straight up struggle saying I'm uncomfortable. I don't know how to react to compliments. I prefer not to say No even if I want to. You are free to cud/int, but please iwc. 
