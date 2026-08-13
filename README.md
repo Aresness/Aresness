@@ -51,6 +51,9 @@
 ᴘᴇᴏᴘʟᴇ ᴡɪᴛʜ ᴠᴇʀʏ ʜɪɢʜ ᴇɢᴏ.
 
 </details>
+
+<img width="1193" height="57" alt="image" src="https://github.com/user-attachments/assets/950be53d-3475-4888-856b-678e4366405b" />
+
 <details>
 <summary> I m p o r t a n t </summary>  
 	&nbsp;
